@@ -3,3 +3,5 @@
 Rose tinted memories only please
 
 A place where memories are false if beautiful!
+
+Hello from Duncan!
